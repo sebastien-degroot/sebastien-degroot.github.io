@@ -1,2 +1,0 @@
-# sebastien-degroot.github.io
- 
